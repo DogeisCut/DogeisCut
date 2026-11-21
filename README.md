@@ -1,5 +1,5 @@
 # About Me
-Howdy! I'm DogeisCut, sometimes called Doge, rarely called Cut. I'm a 20 year old furry artist, composer, programmer, animator, and gamedev who goes by any pronouns! When it comes to digital creativity, I'm a jack of all trades, and real emphasis on master of none. As I like to put it elsewhere, "uhh sometimes i do a little bit of everything all of the time and forget to post it"
+Howdy! I'm DogeisCut, sometimes called Doge, rarely called Cut (my username is 2 words, Dogeis and Cut, and is completely meaningless. It's a long story). I'm a 20 year old furry artist, composer, programmer, animator, and gamedev who goes by any pronouns! When it comes to digital creativity, I'm a jack of all trades, and real emphasis on master of none. As I like to put it elsewhere, "uhh sometimes i do a little bit of everything all of the time and forget to post it"
 
 I've graduated college with my Bachelors in Game Design!
 
